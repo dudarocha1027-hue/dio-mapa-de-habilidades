@@ -45,3 +45,25 @@ Projeto do curso DIO - Mapa de Habilidades
 - Quem pagaria? Estudantes, pessoas interessadas em saúde e qualidade de vida.
 - Problema que resolve: Dificuldade em entender conteúdos de biologia ou temas relacionados ao corpo humano.
 - Como pode ser oferecido: Aulas de reforço, produção de conteúdo educativo ou orientação para estudos.
+
+
+## Etapa 3 - Caminhos de Monetização
+
+### 1. Aulas ou Treinos Esportivos
+
+Posso oferecer aulas para iniciantes ou treinos em grupo para pessoas que desejam melhorar o condicionamento físico. 
+Divulgação pode ser feita por redes sociais ou grupos locais.
+
+### 2. Produção de Conteúdo sobre Esporte e Saúde
+
+Criar conteúdos educativos nas redes sociais sobre prática esportiva, disciplina, organização e saúde.
+Isso pode gerar crescimento de audiência e oportunidades futuras.
+
+### 3. Aulas de Reforço em Biologia
+
+Oferecer aulas para estudantes que tenham dificuldade na matéria, ajudando na compreensão do conteúdo.
+Pode ser realizado presencialmente ou online.
+
+### 4. Organização de Grupos ou Eventos Esportivos
+
+Criar grupos de treino organizados ou pequenos eventos esportivos locais, utilizando minhas habilidades de liderança e organização.
