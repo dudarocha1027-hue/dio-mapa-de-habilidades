@@ -4,7 +4,12 @@ Projeto do curso DIO - Mapa de Habilidades
 
 ## Etapa 1 - Inventário de Habilidades
 
-(Em construção)
+### Habilidades Técnicas
+
+### Habilidades Comportamentais
+
+### Interesses e Facilidade
+ 
 
 ## Etapa 2 - Cruzamento com o Mercado
 
